@@ -1,3 +1,3 @@
 Zabitiye_Svitki
 ==============================
-<img src="http://img1.fantasticfiction.co.uk/images/c3/c18940.jpg" /><br />
+<img src="https://lh5.googleusercontent.com/FCRtwLFyxT2qG_fj1u0wkfsEEkQpwZ9MkPzmLICZT3rW0RC7pDYUqaYSHLEP3FKx1N9NgPlsLWg=w926-h806" /><br />
