@@ -1,4 +1,3 @@
-Приключения Душегубки
+Zabitiye_Svitki
 ==============================
-<img src="http://img4.wikia.nocookie.net/__cb20100112151801/theedgechronicles/images/a/a5/Keris.png" hspace="20" align="left" /><br />
-Привет, мы тут храним все версии пиратских переводов Воздушных Пиратов, готовые книги с иллюстрациями будут тут же. Сам перевод идет на нотабеноиде, гуглите и вы нас найдете. 
+<img src="http://img1.fantasticfiction.co.uk/images/c3/c18940.jpg" /><br />
